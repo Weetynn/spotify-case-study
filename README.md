@@ -1,1 +1,4 @@
-# spotifys-bssmma-1
+# Spotify's Digital Strategy: Driving Growth Through Data and Engagement
+
+## 📚 Introduction
+
